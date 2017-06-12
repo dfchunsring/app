@@ -1,7 +1,6 @@
 <p>https://git.io/727 <p>2017/4/7 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 封锁严厉！网址能访问的，请记的收藏。
 <p>• 建议用谷歌或火狐官方浏览器访问。
-<p>◎   • 视 频：
 <p>◎   • 视 频： 
 <a href="http://g.zgrco.com/tv/" target="_blank">网址一</a> 　 
 <a href="http://g.zgrco.com/9018.html" target="_blank">网址二</a> 　 
